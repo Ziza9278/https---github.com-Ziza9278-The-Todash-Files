@@ -1,2 +1,4 @@
 # The Todash Files 2
  Todash Files Github
+
+ This is a fan fiction that focuses on the Dark Tower, a story that is told by Stephen King in his seven book series beginning with the book titled "The Last Gunslinger" and ending with "The Dark Tower". The story I tell begins at the end of the seventh book, if you have not read any of his books on the Dark Tower, I strongly sugggest you read or listen to them, my story contains major spoilers. My story also contains some scenes and characters from the stories other authors. Neil Gaiman, JK Rowling, Patrick Rothfuss, and Brandon Sanderson, with a honorable mention to Suzanne Collins. These authors, in my opinion, along with Sthephen King have found the doors and doorways that lead to the Tower. Or mayhap, the Tower has reached out to them along the paths of the beams, anyway their stories are ones I keep going back to...looking for clues in order to get Roland and his new Ka-tet to the Dark Tower.
